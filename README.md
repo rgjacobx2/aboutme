@@ -18,4 +18,10 @@ I enjoy taking a drive 🚙 , play games 🎮 and swim 🏊🏾 when the opportu
 I also play the Piano 🎹 occasionally.
 
 ## Conclusion
-If you do ❤️ what you see, drop a message and tell me what you do and like.
+If you do ❤️ what you see, drop a message 💬 on any of the profiles you may have encountered.
+Tell me about yourself. 👈🏽
+What do you do? 🤷🏽‍♂️
+What do you like? 👨🏻‍🎨
+
+Maybe someday we could build a humble empire 🏰 
+There is never one oyster shell 🐚 by the seashore.
