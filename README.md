@@ -9,7 +9,8 @@ My name is Arjee. (Pronounced RG)
 ## What do I do ?
 I am an Embedded Engineer ⚡ , a photographer📸 and a videographer 📹. 
 
-[Link] https://rgjacobjacob.myportfolio.com/
+[Link] https://rgjacobjacob.myportfolio.com
+
 [Link] https://www.linkedin.com/in/argyjacobjacob/
 
 ## What do I like ?
