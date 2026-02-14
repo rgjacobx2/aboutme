@@ -2,7 +2,7 @@
 
 Hello there net surfer 🏄🏻 ! 
 
-You have reached this page, with an amount of curiousity that makes me happy 😊 .
+You have reached this page, with an amount of curiosity that makes me happy 😊 .
 
 My name is Arjee. (Pronounced RG)
 
