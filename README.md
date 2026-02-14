@@ -23,6 +23,4 @@ Tell me about yourself. 👈🏽
 What do you do? 🤷🏽‍♂️
 What do you like? 👨🏻‍🎨
 
-Maybe someday we could build a humble empire 🏰 
-
-There is never one oyster shell 🐚 by the seashore.
+Maybe someday we could build an empire 🏰 
