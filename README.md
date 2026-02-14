@@ -4,14 +4,13 @@ Hello there net surfer 🏄🏻 !
 
 You have reached this page, with an amount of curiosity that makes me happy 😊 .
 
-My name is Arjee. (Pronounced RG)
-
 ## What do I do ?
-I am an Embedded Engineer ⚡ , a photographer📸 and a videographer 📹. 
+I am a polymath of sorts, in the field of Embedded Linux ⚡ , photography📸, cinematography 📹, music 🎹, and that's a few from the top of my head.
 
-[Link] https://rgjacobjacob.myportfolio.com
+## Where can I find you ?
 
 [Link] https://www.linkedin.com/in/argyjacobjacob/
+[Link] https://rgjacobjacob.myportfolio.com
 
 ## What do I like ?
 I enjoy taking a drive 🚙 , play games 🎮 and swim 🏊🏾 when the opportunity presents itself.
@@ -23,4 +22,4 @@ Tell me about yourself. 👈🏽
 What do you do? 🤷🏽‍♂️
 What do you like? 👨🏻‍🎨
 
-Maybe someday we could build an empire 🏰 
+Maybe someday we could build something together 🏰.
