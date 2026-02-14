@@ -9,7 +9,7 @@ I am a polymath of sorts, in the field of Embedded Linux ⚡ , photography📸, 
 
 ## Where can I find you ?
 
-[Link] https://www.linkedin.com/in/argyjacobjacob/
+[Link] https://www.linkedin.com/in/argyjacobjacob
 [Link] https://rgjacobjacob.myportfolio.com
 
 ## What do I like ?
